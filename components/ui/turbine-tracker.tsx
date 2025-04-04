@@ -1,0 +1,1 @@
+<kod z Canvasu został automatycznie wstawiony tutaj>
